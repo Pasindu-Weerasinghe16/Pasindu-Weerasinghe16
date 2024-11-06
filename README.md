@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Pasindu-Weerasinghe16
-- 👀 I’m interested in
+- 👀 I’m interested in Data Science /Machine Learning and Ai things.
 - 🌱 I’m currently learning Computer Engineering 
 - 💞️ I’m looking to collaborate .. 
 - 📫 How to reach me  -error😂
